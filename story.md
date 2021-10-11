@@ -1,1 +1,1 @@
-It was a bright sunny day, everyone was going on with their work but then suddenly a screem was heard.
+It was a bright sunny day, everyone was going on with their work but then suddenly a deafening screem was heard.
